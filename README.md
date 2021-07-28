@@ -1,0 +1,2 @@
+# akbr
+Sabar dan optimis
